@@ -2,7 +2,7 @@
 #### 2
 #### 3 Mr.Smuller wuz here!
 #### 4
-#### 5
+#### 5 He is a cool teacher
 #### 6
 #### 7
 #### 8
