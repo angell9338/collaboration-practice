@@ -8,7 +8,7 @@
 #### 8
 #### 9 GitHub is awesome
 #### 10
-#### 11
+#### 11 Paulina is prettier
 #### 12
 #### 13
 #### 14
